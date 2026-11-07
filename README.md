@@ -31,5 +31,5 @@ travailleur  motivé, sérieux prêt à travailler vite et à je cherche n'impor
 - travailleur
 - honnête
 
-  Disponible immédiatement pour un en emploi au Luxembourg.
+  Disponible immédiatement pour un  emploi au Luxembourg.
 
