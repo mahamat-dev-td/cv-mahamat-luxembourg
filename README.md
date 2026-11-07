@@ -1,10 +1,10 @@
 # haroun mahamat 
 
-### À la recherche d'un emploi
+### À la recherche d'un emploi au
 
-N'djamena, tchad - dispon
+N'djamena, tchad - disponible pour 
 
-harountahir60@gmail.com
+Email : harountahir60@gmail.com
 
 Github : mahamat-dev-td
 
@@ -16,8 +16,20 @@ travailleur  motivé, sérieux prêt à travailler vite et à je cherche n'impor
 - travail physique et rapide
 - ponctualité et sérieux
 - Esprit d'équipe
+- apprentissage rapide 
 
-- ## langue
+## langue
 - français : courant
 - arabe : langue maternelle
-- anglais : débutant 
+ 
+- anglais : débutant
+
+## Qualite
+
+- motivé
+- disponible immédiatement
+- travailleur
+- honnête
+
+  Disponible immédiatement pour un en emploi au Luxembourg.
+
